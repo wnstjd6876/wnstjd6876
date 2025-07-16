@@ -14,7 +14,7 @@
 
 📞 010-7350-8995
 
-💻 1999. 09. 27
+💻 2000. 02. 23
 
 - **Email** | **kkb3431@gmail.com**
 - **Github** | https://github.com/rlarudqls
